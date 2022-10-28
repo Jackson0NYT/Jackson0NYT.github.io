@@ -1,1 +1,0 @@
-# Jackson0NYT.github.io
